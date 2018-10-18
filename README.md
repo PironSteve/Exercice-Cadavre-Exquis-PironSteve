@@ -5,3 +5,12 @@ Frodon ayant reçu l'anneau et devant le détruire, part pour un périple semé 
 Le chevalier fait la rencontre d'un vieux, mystérieux, parce que les vieux c'est mystèrieux.
 
 Et le vieux bah il dit rien, forcément puisqu'il est vieux. Mais il tend au chevalier un bocal à anchois qui, si Joseph d'Arimathie a pas été trop con, doit surement être le **Graal**. 
+
+
+Un ogre, très grincheux, appelé L'Ogre violet arriva et s'enerva
+sur le petit chevalier, car il avait pietiné les violettes
+de sa forêt enchanté :
+
+**L'Ogre** _"Pauvre petit homme, tu as mis les pieds au mauvais endroit "_
+
+Il attrapera le chevalier, et l'engloutit d'un seul coup
