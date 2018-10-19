@@ -18,3 +18,6 @@ Il attrapera le chevalier, et l'engloutit d'un seul coup
 Le chevalier se retrouvera noyé dans les sucs gastriques de l'ogre. Il ne pouvait crier, sinon il allait avaler toute cette substance gluante qui habitait cet être dégoutant.
 
 Il eu l'idée de sortir sa dague, et de pratiquer une césarienne pour se sortir de là.
+
+
+Mais là dessus, l'ogre bouffa un **troll des cavernes**. A deux dans cet estomac glaireux, il n'avait plus de place pour sortir sa lame. Il ne restait qu'une solution: faire vomir l'ogre ou sinon être condamné à la sortie ... par le mauvais côté du tunnel.
