@@ -18,3 +18,5 @@ Il attrapera le chevalier, et l'engloutit d'un seul coup
 Le chevalier se retrouvera noyé dans les sucs gastriques de l'ogre. Il ne pouvait crier, sinon il allait avaler toute cette substance gluante qui habitait cet être dégoutant.
 
 Il eu l'idée de sortir sa dague, et de pratiquer une césarienne pour se sortir de là.
+Assourdi par le bruit du brassage des liquides physiologiques autour de lui il distingua une voix au loin:
+>Faut faire comme avec les scorpions qui se suicident quand ils sont entourés par le feu, faut faire un feu en forme de cercle, autour d’eux, comme ça ils se suicident, pendant que nous on fait le tour et on lance de la caillasse de l’autre côté pour brouiller... Non ?
