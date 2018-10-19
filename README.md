@@ -21,3 +21,5 @@ Il eu l'idée de sortir sa dague, et de pratiquer une césarienne pour se sortir
 
 
 Mais là dessus, l'ogre bouffa un **troll des cavernes**. A deux dans cet estomac glaireux, il n'avait plus de place pour sortir sa lame. Il ne restait qu'une solution: faire vomir l'ogre ou sinon être condamné à la sortie ... par le mauvais côté du tunnel.
+
+J'étais dans un labyrinthe et je me sentais très triste alors j'ai commencé à chanter. Mais comme je chante très mal, il a commencé à pleuvoir très fort et tout à coup un dauphin est apparu et il m'a aidé à sortir du labyrinthe, c'est alors que je me suis réveillé, j'étais en réalité dans un cinéma en train de rêver !
